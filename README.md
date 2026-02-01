@@ -1,0 +1,1 @@
+# algaritmo_unifecaf_janeiro_2026
